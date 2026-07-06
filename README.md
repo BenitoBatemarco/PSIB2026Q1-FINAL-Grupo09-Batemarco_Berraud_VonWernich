@@ -1,1 +1,1 @@
-FINAl EEG
+FINAL EEG
